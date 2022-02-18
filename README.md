@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @avidyaSlash aka ritu
+- 👀 I’m interested in football, Anime, Science Fiction, Star Trek, Physics & PC games
+- 🌱 I’m currently learning python & javaScript
+- 💞️ I’m looking to collaborate on learning
+- 📫 How to reach me riturajnita@gmail.com/krituraj@live.com
+- engage!!
